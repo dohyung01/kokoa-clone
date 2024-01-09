@@ -1,2 +1,2 @@
 #Kokoa Clone
-CSS good lang!
+CSS good lang! HTML IS SO MUCH FUN!
